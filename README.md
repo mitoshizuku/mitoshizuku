@@ -1,6 +1,6 @@
-[I stopped to fine the rainbow in fine day,recently…]
+[Make myself Useful]
 - 👋 Hi, I’m @mitoshizuku
-- 📫 Twt:@mito_xv
+- 📫 Twt:@mdr_100a
 
 <!---
 mitoshizuku/mitoshizuku is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
